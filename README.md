@@ -1,1 +1,2 @@
-# the-king-is-back
+# The King Is Back
+L'enfer est bondé et la salle est fermée. Le roi des enfers, Chen Yan Luo, est mort et est devenu lycéen ! « Je voulais être une personne normale, flirter avec la collégienne et aller dîner chez mon beau-père, mais il y a toujours des rivaux qui viennent sans y être invités, alors merde, je vais montrer mes cartes ! Oh merde, nous revoilà ! »
